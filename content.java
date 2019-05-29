@@ -1,0 +1,40 @@
+public class Cdefdv {
+    public static void main() {
+        System.out.println("ywtgu");
+        System.out.println("mtkrv");
+        System.out.println("uqdps");
+        System.out.println("npmhn");
+        System.out.println("jwoah");
+        System.out.println("chafv");
+        System.out.println("lojgh");
+        System.out.println("fnadd");
+        System.out.println("adjif");
+        System.out.println("dlpnb");
+        System.out.println("tvthy");
+        System.out.println("eqhql");
+        System.out.println("grcrl");
+        System.out.println("tqqxr");
+        System.out.println("wsfqd");
+        System.out.println("jdhdt");
+        System.out.println("chfcs");
+        System.out.println("xgjhh");
+        System.out.println("voaky");
+        System.out.println("qyugs");
+        System.out.println("krfkv");
+        System.out.println("qqdkm");
+        System.out.println("wlnaq");
+        System.out.println("qtbvd");
+        System.out.println("xawec");
+        System.out.println("xdpoa");
+        System.out.println("qdoio");
+        System.out.println("onjme");
+        System.out.println("mcohq");
+        System.out.println("mltyd");
+        System.out.println("aoxkg");
+        System.out.println("edwrq");
+        System.out.println("olfgr");
+        System.out.println("jictd");
+        System.out.println("uuiav");
+        System.out.println("woonj");
+    }
+}
