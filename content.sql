@@ -37,5 +37,5 @@ SELECT * from tdxgp;
 SELECT * from wuuqt;
 SELECT * from pkoxs;
 SELECT * from cnxwo;
-SELECT * from inimh;
-SELECT * from xabhp;
+SELECT * from omeba;
+SELECT * from viskg;
