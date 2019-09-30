@@ -222,4 +222,4 @@ SELECT * from sshgx;
 SELECT * from fovsr;
 SELECT * from imujt;
 SELECT * from xeirf;
-SELECT * from ncono;
+SELECT * from jodax;
