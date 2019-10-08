@@ -223,5 +223,5 @@ SELECT * from fovsr;
 SELECT * from imujt;
 SELECT * from xeirf;
 SELECT * from fntyk;
-SELECT * from nmfop;
-SELECT * from rdfmq;
+SELECT * from xtkag;
+SELECT * from xqxef;
