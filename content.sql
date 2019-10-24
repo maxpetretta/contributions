@@ -337,5 +337,5 @@ SELECT * from fevmj;
 SELECT * from dlrol;
 SELECT * from lrvqq;
 SELECT * from ofsjx;
-SELECT * from frkbp;
-SELECT * from uuken;
+SELECT * from ewtww;
+SELECT * from afilg;
