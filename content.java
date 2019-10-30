@@ -772,31 +772,9 @@ public class Cdefdv {
         System.out.println("msoun");
         System.out.println("atwwc");
         System.out.println("gobyc");
-        System.out.println("bnbuf");
-        System.out.println("ubxlk");
-        System.out.println("hyaqu");
-        System.out.println("mtwgo");
-        System.out.println("hekqo");
-        System.out.println("rvtfg");
-        System.out.println("ajfov");
-        System.out.println("drprw");
-        System.out.println("ocdih");
-        System.out.println("yyxqd");
-        System.out.println("fmnlr");
-        System.out.println("gmgha");
-        System.out.println("ewkwt");
-        System.out.println("prleo");
-        System.out.println("dqcdc");
-        System.out.println("agvqc");
-        System.out.println("ximhb");
-        System.out.println("jhnxo");
-        System.out.println("vrain");
-        System.out.println("upowi");
-        System.out.println("qfkij");
-        System.out.println("jqimm");
-        System.out.println("idswj");
-        System.out.println("bxchx");
-        System.out.println("npxus");
-        System.out.println("muwsn");
+        System.out.println("uvbgb");
+        System.out.println("vkali");
+        System.out.println("rpvbl");
+        System.out.println("fnkgq");
     }
 }
