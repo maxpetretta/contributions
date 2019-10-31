@@ -745,7 +745,5 @@ public class Cdefdv {
         System.out.println("bveob");
         System.out.println("oeixr");
         System.out.println("afuaw");
-        System.out.println("smoao");
-        System.out.println("xdyki");
     }
 }
