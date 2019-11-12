@@ -825,6 +825,12 @@ public class Cdefdv {
         System.out.println("qvbdx");
         System.out.println("xlnrs");
         System.out.println("qdpgm");
-        System.out.println("shiui");
+        System.out.println("xrxys");
+        System.out.println("awutd");
+        System.out.println("yscdh");
+        System.out.println("irwfl");
+        System.out.println("kfodx");
+        System.out.println("plvau");
+        System.out.println("xdaku");
     }
 }
