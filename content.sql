@@ -343,5 +343,4 @@ SELECT * from qdsqp;
 SELECT * from mjlep;
 SELECT * from qxfvb;
 SELECT * from kjfjx;
-SELECT * from jupjf;
-SELECT * from oddqr;
+SELECT * from jwcvj;
