@@ -1037,7 +1037,5 @@ public class Cdefdv {
         System.out.println("ydauu");
         System.out.println("lbclu");
         System.out.println("enfql");
-        System.out.println("nnwkr");
-        System.out.println("rvyga");
     }
 }
