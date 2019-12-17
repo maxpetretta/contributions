@@ -404,5 +404,6 @@ SELECT * from vflwy;
 SELECT * from vmlbf;
 SELECT * from pifch;
 SELECT * from ctaev;
-SELECT * from rwqvi;
-SELECT * from udqqg;
+SELECT * from genly;
+SELECT * from tlrlm;
+SELECT * from mtwyx;
