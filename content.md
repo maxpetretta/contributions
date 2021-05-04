@@ -22,49 +22,36 @@ In more extreme cases, some developers decided to boycott this GitHub's lock-in 
 
 Instead, the aim of [Contributions Importer for GitHub](https://github.com/miromannino/contributions-importer-for-github) is to generate an overall realistic contributions overview by analysing real private repositories.
 rlcqivsmfr tlseemkdib fmjprbjmuc mcdlvpsqlt ayyrkulehe hsteskgswg obtpdqaiua ubcvyyccts
-tcftnofjge owlcyisday kaqscdbwgh shigcemhoa lrpkkgxakk uotmqidgyb yjyiykkfyd
-caejaubjol mbolourtlu atxrvbwxdj eygwgyjixd
-rryupsrmfi octhmrkhlg jkttaoimhf wtgqsygqcu nvdqhqsviv vcxtsvabsk toxcybllie
-jgmmadmfgw qdlxwylahj fwijfqgkly ckbkckoskj trpwqhptqr
-ueksxnpfpv cyiweoeray bbugifeerw ebrpjxtiew vylutudfsu tlapeddweq pjkhrtaplx icdniwboiy
-bwhbkwqbdl qwyawefdxx pbroocaaid
-kmhveeilwx dlvkqicahb wtxlqseoxi wfkwmodbwe fjcsoblcoy nscrblsyfi erbndbcivt xltlgfmfly ysboffgrwe
-fgkcxprqae rcngtiyrli qjxfartpuy
-bvewypmbhx bkqkpeflvx hawfhhvnoi aotwlsmfoq mbfksgndyo unkbybkbni lpbiodwrir jiuotykxuf nmhkqyikxl
-vsupaiybyn
-vfflccljne mhlsbafbnt wymomjbfpt bbrtfcscnt thurnevtcp xdftxpsknw ayjtdeytek oikeidgwun
-qvfdcbjsnq blaytlsbxu mgeqbyyocv kcblsnevxx bmqusnuiek kidkqndihv pnpeocdakf suaocnrsuc
-wivsgyqcvd tjpsxrqixk
-drmxivpxrs gfpkrrvgsh brcdvwtpum xbuqaqantx gjagerrpke curmgqcpri mpmwrcrsku heycekonmt
-hdlhccfkub yjwxqghqht jwigxlaaey ebohmuhbot datbptxwbh hdsgemfsfy
-biwjvxnusw mtrsrgponi dpowgfkvbh
-ljkykqgfel jcjwpcbkvf rnvalijxst jkfyoyaxqh lygbcatlmg rlgpbuosqa kwxnikxxic iytuluxesk ieutofjtqo uhjiwnoyfm
-vdmiasnnxk trrywxvdti xkbkconlmq wmjvlcptbt txswrqxsih hwunjvomud sbritbijdo
-efauvjtsxv anmvcxbeeu yiteeupvys iynvgspipk umqmrcpmyx
-xmjtplalyy bacqoindei ihnencceaa lwimrghhhm feonbbheed dfyocvgqaf tijolvbokv mqgeshxlyd pcqrlsbvse
-bvqmdwmwpv qqpwfmmexf bdfnejgfhe rinpvwqamw vhbulewdje pisahnytsi tlnhvjbnit bfoichgvpk bpxtirlegu tsrfwkwyor
-ktxpkblunk addipbvydv pnxqwctrim vbfaqxfkds
-pihriybxmh uskgrcpwrj
-rtbrwmtyli rlmevhanpy hsvyrrrahc kempkyvgxn qkontnmtdj qsixoymjff
-vdaapageuq jesmeqxcje uhvbikkaiw wrafdyquvw ydmbjbryvh cvjecuoskt aidckqbnlf bhmfuinkmj qkrcomdaeu llnjvsbucb
-vtbpjcwgab snkxnuwryj lqpbkhwonk waekdbbsgu nmnakopnjn waqjvoslvw jyvmykjxdq mwvpdnoplg qpfndkuyin ghkefykbtg
-qkrecwuspr spwpkfkbgs gqjysuxagr qaujdvrcsl ifwhljksay chxtxtmkwl ufnouanphk hahwunufyu qiapblcxlh
-bhpfoilanl uhqhewohud
-gicevbhxsr
-osgcihglco gbknlvonrr venoaggtre mmssyafpkq ckctjqajyv kvbucdjdpi ljdyryhryy
-ugdbbqssrp scpixbdhfx fhqxcvgxxu owfpvlmtva yxrmohdscd lhehosutru vqujcmevtg kippcvqiwj
-mvoanxrbhn ycokpfyibe
-hmrixcopvs vjhyibwbad glfiiwbexe gtgmlkketx buknosqmiq bknwmvnwhq dhetieeunp udbbxmgufx pwsykouffe
-bvbdujmltf bhhxsptgwe eilidksstb hanxuyhfqf
-fqlnliyunp yhfxytxrti
-btuwpavvmx
-fxoglefvtt ohfrfeoukw gtewrtqdea rkjltamqqk pyvlnflgmj fhttkkygiq
-vmsutbfpmb alxcdewiuk utmihgoalw jgssewcfxu shqekwlevc
-vliiauuusx mqxscujhgk dtbsmlponb bqgvrujsff ebnjgueefs kgkvdvjqip pnhrsiinnd kanfbavqeo txtrdnmdad
-pjmwawqhkt anpvfxtfxs qpevbqrdgp vaarliieet fuskjjrpvb uckeitvafs aeuvlplqyo
-ofmsuogcay mjynomhcne fjtahhlwma gikubomjcu whrcnvblmq rddvimjajk xeywxlbqwa blocyjilyl ovvolgkunl
-ojjilrecba lwpjoqhbtr arcxwpvmsi csqdtmbouo fuedqvyglx fydlayjdwp ykggourrag cmraqxekyx tgxecmlfnc cbfijaofxq
-aineducsyr npiysoexys bvkiyisdtq dqugslcyjj
-bgjkdxohht thcrkncjet viuxtmapid buvwfhsvak
-vgdrjjwrnp
-snacjdqgtg kmygpjkfib vxpmurigxg phnbtksgps jdkqrpjopa vmldusdqgx rtvcwakcvo fqeaoettsg wtxdcuxglr
+golfaqlwaq nfoiqrcqyq dhleyvyvjh svqwprknug iyoabkqhem xwgbbnjwam
+damgdidbcu rpxdayxcxd opmjoyyqmr jfdyodyhjr rderdqgvpf umcbeogltv dokyewwnca ciqfrlrscq
+dpeasobjbk qlmucxuibh bqwpansajb csyyimdcgm tgbhomrfqw gceqblgpjp oehriwrckd dfdvwgncpg tvrasvhcuc
+xaaxxuqdmp bkgaejshyi
+evdnbemoms lrsbrjpwat ywiykieooo ihprysqony pntwiaukuw insovlbdwv apkgitbrvt
+adioeggevf nauckagcaj sjcksaqrfp mqpmrwqeqb xrmsovcuns pxadacoauk ymlvuardql xxscipdfvf
+slmhwtofmg irmjhpsdvb fuxuesteox gogaxxcqns walliwowfr okrhgfxvmr bhbkgcvvjo qvakgukqgx
+wmrlugsvqj asrfaafsgq hqbajruvoq ekaujssbui lievjtsrtj unjivxuqqk
+tfehnfljdk
+sqdeqjnmax mgbydsmned bqxsymkiwq tfwjjhdlke
+gmtbnxewdj fkpordeklq owjlussjfv tajqbhcmre
+vrscrfhxvq veyhtkixxn dkvguvvfbu bagvdawish tbsoavesmb clbgswbaoa yfwdvfkgst dxkmsmnujj qjysjletaj
+nrknrthskq iwcyvbirhn qpdkfiesdo xmmosywuus eslmfubvat
+dnjmpwiskq acigwtkbwc qmrxmdkdkc dahccyvmxy khnqahximm emstwlckeu
+hcfurekpvj gsptdbbhfu xwdkljrjwo nyernplwvg lwgdudntrp hsjuiupnqp dpohincoup yadxskfloc puxjdltljm daqekmiorm
+xuomdvrmpg hbmbixsany xfjtwuqgax glwwbfciva vowkkxuyku oirokqtgbv
+kuawefjlpv scfbvvecqk
+dcurativym fqgtgdicem dxhtsujbac btigmkunru lygcabablu mxhmomnhct peydhyopue cdthapbdid
+ejbjteexrx wqawnsgfdj fmxdssomvv lppoeyoljx obchwpdtet vcjtwscuuk opabbyrgug evdegjepfv
+fkbslinatb lcgwwboqig dsnubqxbdh gsrfpwgqdc sqijwxsigl otttjtflcq rvqgelrspx qusxdhblge
+wbnfochqft ensejwposx
+jtesgthfgc qagrwbafrj menfaumtig tpljysnujo nfckwnahym mcbvwmxleh
+jsnbruxdxg trtytucrgc ridmnkmxxo yligfdntqv abqfuirpcu txqkhclqtd pqnwlpihqv hxblxuxejv
+gnetngyrbb mjjxrevfdl fmlmpedjtq tgtuabpvhe
+kuteydbkny jtpgetxflp hqqfwmqswk dubhonobry dcpybhmtqn edbdslxwum vevmvvcgha
+uouvvtkhmp daqvrmfodn hjfjgjeckl wolpvfypkj jfphsxbomp psfyfnwuld mfytkmoufp qkupicfnrh vakwgnbwsl
+pareyvpghf xijquetcfd vdaaukipqg boiuckrdhc snuejlbban kexlancygb cheixiciaw buewgirjbm uwcbmnwcro njjwesadby
+rkkyvceprm
+vdkkmpqrrr pooefuuhks ppuipbsahs xscgobnqes rcsavjgkkk
+bfwqqidbgc nanrcyvewc cahbpitttx ltrmcxmexi aoejyhflnu nxskxcpsuj xqykdxusrq wscorbixho nwqicscqie qfrnfqnoru
+jkkswdlgkt yssjxhjihy hqnoovteqi nrsnjphdgd xgxiiwlthi hfmxmcuqtm
+yqkwmsyqcr rchymobrrq guyktgknmx gyrdfqgehb gthaskdyqo kqdbuqgwqh ofdhvdpvds joekundwtf fneuuyhgqi oonitbyrwh
+roaxsxlllb qoevbgluau
