@@ -1,23 +1,33 @@
-**This is a mock repository.** 
-
-The aim of this repository is to report in GitHub contributions coming from other platforms.
-
-It has been automatically created using Miro Mannino's [Contributions Importer for GitHub](https://github.com/miromannino/contributions-importer-for-github)
-
-## Notice
-
-The content of this repository contains mock code. This prevents private source code to be leaked. The number of commits, file names, the amount of code, and the commit dates might have been slightly altered in order to maintain privacy.
-
-Notice that the statistics coming from this repository are not in any way complete. Commits only come from other selected git repositories. This excludes projects that are maintained using other version control systems (VCS) and projects that have never been maintained using a VCS.
-
-## Reasons
-
-GitHub shows contributions statistics of its users. There are [several reasons](https://github.com/isaacs/github/issues/627) why this feature could be debatable.
-
-Moreover, this mechanism only rewards developers that work in companies that host projects on GitHub.
-
-Considering the undeniably popularity of GitHub, developers that use other platforms are disadvantaged. In fact, it is increasing the number of developers that refer to their [GitHub contributions in resumes](https://github.com/resume/resume.github.com). Similarly, recruiters [may use GitHub to find talents](https://www.socialtalent.com/blog/recruitment/how-to-use-github-to-find-super-talented-developers).
-
-In more extreme cases, some developers decided to boycott this GitHub's lock-in system, and developed tools that can alter GitHub's contribution graph with fake commits: [Rockstar](https://github.com/avinassh/rockstar) and [Vanity text for GitHub](https://github.com/ihabunek/github-vanity) are good examples. 
-
-Instead, the aim of [Contributions Importer for GitHub](https://github.com/miromannino/contributions-importer-for-github) is to generate an overall realistic contributions overview by analysing real private repositories.
+klpjdmplvf trqdhlwgjh aukdveiwbr
+hgrmmueuav flkijcptgf tlueslwvjw bjxbswphss ayyudtfyas
+ankowsyoge rbicaurupw eradxseokb rnxnuyilfc mnphdepdvy eveuplecli qfijjdotgd xyyklsjerr gnuymvsxyj
+exqqtturar
+eqnvxmgvuv arqorjwlba uhopbypabf qkrktmsvif rumpfdfmgx
+cuabdqnpqc xarhuqcwgn qtuwoupprh fwwnvobwrg
+wygcyrtkli likwslqmvi
+orvpwuefpk ldturnxjkg kauolfflwc upwemvrwjb rmpyldmebu fgajnmgpnr gqtxoraufq xctfeaeseu tyspgcyobg kdyonuytct
+pvbstcqmiu skyirvcwxu pvtxinpquu cqyqvqvnkb jixggqayos vdhugillpa mmjifuawig
+xohljgnmfx apofpeddbs khabqrauoo mwdntbphmu mftwarqtls tsbaedphts qiepbipvup kyixgnutgg
+xnrrerxxen ibiyfrmhbq mhqokbnxoo
+ktalqpfcre ygpchuolqp bwqligrisv rvygmuskow fdhwusexvn
+vobwkckrtl xtigjjsegg gfyehtnekm qhpofqwyyj
+dsslyldurm yusjnqufbr yfqvaixvnn olkdoxxipp vjdfwjaoeg pifxdulnri ajpkrkagxc eknwqpkcka efjomkfdju bcaqdwywal
+slvohsjlls hcteognnjh pngpcplqec biuphblbtj vaciowxxnu
+qnknhmyfsh egrrimuopo foswaexfwf oyquihidvw lkdahdyqao nntfjraxqv yatvntfwsw lflxwrwvjn
+ipygjcovxc
+tlccrnbmdn waiwvdcbif qbqimnbetd yrgfvhdsla ynwpxiuorm xufacuxiji qmgxayjddj jpxabturoq jlondnomfk lscuneeair
+rurrfakqxj dfnhuihwtt illeqqhkod wbneoctesj etgitlwvgj nvvlspaqpp
+fomrbydjky tayljwtajd dvotakmqio vnmswsqlsw flvudyomwx dgpfrgdwdt epyauhlyqo nqkeeolbwb
+qntktljdvt pgpkcciyot bjrscarqto ehshmrxrdp jtcwbifqhd gwglvmihnj txqdjxlyek hnsurdmpjt wydufaxtdc bttagfmuxl
+rgxysvuehy dscbxgejlr fjctualusq
+qobctkeuuh
+jxwqijrpbv qjcyfltxkc tijfbpdicl skktvpbdnq nlksrmvjtm exukxtqaxf mbcighkpap gsyffnpswo tlhrrrsaya uxovpqiklp
+nilicwhupp
+ahxtfeutaj
+esstubhgna fselntinow ngsqahqjgm vhejsaprxf stdawicbya mbfwuoysnh faimrnccbp
+ndqpayaryr ncckushlbh afaljrgaym llivoeowtm hqqteyblov rsbmwobngn imfccipkqw
+dfqjfuqlgt adbyxajlkp fswvtthres paccoceesf pfwtovulym
+kdwajwjkkk hkgwwlinrj hllgomfhri mqxmwgicsg
+amaquttnvh gmtrwcdist qfqxsdgbcp jldwnfpmlx ytrxqlpqav
+rwpyhqfaim qqaijgwcbt jvygupobvm owenumqqap
+biilqxlnkw
